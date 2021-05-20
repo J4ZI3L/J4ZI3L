@@ -1,2 +1,3 @@
 Oi eu sou Jaziel e eu amo programação e sou
-iniciante nisso
+iniciante nisso e também amo desenhar
+
